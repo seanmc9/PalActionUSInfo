@@ -9,6 +9,7 @@ The US branch of [PalAction](https://twitter.com/Pal_Action), the direct action 
 
 ## Actions
  - October 19th, 2023: [First action in Cambridge, MA shutting down Elbit Systems there](https://x.com/Pal_action/status/1715009439269257417?s=20)
+ - Octover 24th, 2023: [Disrupting Elbit recruiting at Wentworth Institute of Technology](https://x.com/Pal_ActionUS/status/1716942880915198021?s=20)
 
 ## History
  - October 19th, 2023: [PalActionUS Founding Statement in Progressive International](https://progressive.international/wire/2023-10-19-palestine-action-us-campaign-launches-to-stop-israeli-genocide-of-palestine-and-shut-elbit-down/en)
