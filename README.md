@@ -5,7 +5,7 @@ The US branch of [PalAction](https://twitter.com/Pal_Action), the direct action 
  - More info on the network can be found at https://www.palestineaction.org/.
 
 ## Upcoming/Calls to Action
- - October 24th, 2023: [PalActionUS online campaign launch](bit.ly/PalActionUS)
+ - Fill out the Intake Form to get plugged in: https://bit.ly/joinpalactus
 
 ## Actions
  - October 19th, 2023: [First action in Cambridge, MA shutting down Elbit Systems there](https://x.com/Pal_action/status/1715009439269257417?s=20)
@@ -15,6 +15,7 @@ The US branch of [PalAction](https://twitter.com/Pal_Action), the direct action 
  - October 19th, 2023: [Announcement editorial in Mondweiss of the creation of PalActionUS](https://t.co/WdphC74gNQ)
  - October 19th, 2023 - October 22nd: [For the first couple of days of its existence, PalActionUS was heavily censored on Twitter/X](https://x.com/BenjaminNorton/status/1716074293543809230?s=20)
  - October 23rd, 2023: [Millennials Are Killing Capitalism Interview on PalAction with Huda and Fergie](https://www.youtube.com/watch?v=PkbcD4MSjVI)
+ - October 24th, 2023: [PalActionUS online campaign launch](bit.ly/PalActionUS)
 
 ## Resources
  - [Fire Extinguisher Conversion Guide](https://www.youtube.com/watch?v=dxVXl2WTATk&embeds_referring_euri=https%3A%2F%2Ftwitter.com%2F&source_ve_path=MjM4NTE&feature=emb_title)
