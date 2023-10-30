@@ -10,7 +10,8 @@ The US branch of [PalAction](https://twitter.com/Pal_Action), the direct action 
 ## Actions
  - October 19th, 2023: [First action in Cambridge, MA shutting down Elbit Systems there](https://x.com/Pal_action/status/1715009439269257417?s=20)
  - October 24th, 2023: [Direct action against Intercontinental Real Estate in Cambridge, MA](https://x.com/Pal_ActionUS/status/1716776226306629872?s=20)
- - Octover 24th, 2023: [Disrupting Elbit recruiting at Wentworth Institute of Technology](https://x.com/Pal_ActionUS/status/1716942880915198021?s=20)
+ - October 24th, 2023: [Disrupting Elbit recruiting at Wentworth Institute of Technology](https://x.com/Pal_ActionUS/status/1716942880915198021?s=20)
+ - October 30th, 2023: [Flood Elbit Action in Cambridge, MA](https://x.com/Pal_ActionUS/status/1719022777213268265?s=20)
 
 ## History
  - October 19th, 2023: [PalActionUS Founding Statement in Progressive International](https://progressive.international/wire/2023-10-19-palestine-action-us-campaign-launches-to-stop-israeli-genocide-of-palestine-and-shut-elbit-down/en)
